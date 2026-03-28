@@ -117,6 +117,457 @@ _The Tuskegee Institute archives hold records of 4,743 lynchings between 1882 an
 - **Bannon, Charles**, 22 — January 29, 1931, North Dakota. White. Murdering his employer and family. Mob broke into jail and hanged him from a bridge.
 - **Gunn, Raymond**, 27 — January 12, 1931, Missouri. African American. Murdering a white woman. Burned to death; National Guard stood by and watched.
 - **Parker, John**, — 1931, Arkansas. African American. Stealing some peaches.
+
+## 1920s
+
+- **Seeman, Louis "Slim"**, 30s — July 13, 1929, Nebraska. White. Murder of police officer Ed Green. Shot.
+- **Benavides, Rafael**, — November 16, 1928, New Mexico. Latino. Attacking a white man's wife. Kidnapped from hospital and hanged from a tree near an abandoned ranch.
+- **Bearden, James**, 25 — June 29, 1928, Mississippi. African American. Argued with white men over debt. Dragged behind car, hanged.
+- **Bearden, Stanly**, 24 — June 29, 1928, Mississippi. African American. Same case as James Bearden above.
+- **Ratliff, Marshall**, 26 — December 23, 1927, Texas. White. Bank robbery. Robbed a bank dressed as Santa Claus; hanged with rope thrown over a guy-wire between two telephone poles.
+- **Woods, Leonard**, 30 — November 30, 1927, Kentucky. African American. Murder. Hanged.
+- **Choate, Henry**, 18 — November 13, 1927, Tennessee. African American. Assaulting a white girl. Killed with a hammer, dragged by automobile and hanged at the County Courthouse.
+- **Williams, Thomas**, — September 28, 1927, Tennessee. African American. Attacking a fifty-year-old white woman. Shot.
+- **Pounds, Winston**, — August 25–26, 1927, Arkansas. African American. Breaking and entering, assaulting a white woman. Hanged.
+- **Bradshaw, Thomas**, — August 2, 1927, North Carolina. African American. Rape. Shot.
+- **Williams, Albert**, — July 21, 1927, Florida. African American. Assault. Shot.
+- **Fox, Jim**, — June 26, 1927, Mississippi. African American. Murder. Tied to a telephone pole with barbed wire and burned.
+- **Fox, Mark**, — June 26, 1927, Mississippi. African American. Same case as Jim Fox.
+- **Upchurch, Joseph**, — June 17, 1927, Tennessee. African American. Murder. Shot.
+- **Flemming, Owen**, — June 8, 1927, Arkansas. African American. Murder. Shot.
+- **Raspberry, Bernice**, 23 — May 25, 1927, Mississippi. African American. "Alleged improper conduct with a white woman." Hanged, shot.
+- **Anderson, Dan**, 32 — May 20, 1927, Mississippi. African American. Murder of a white farmer. Shot.
+- **Carter, John**, 38 — May 4, 1927, Arkansas. African American. None. No charges filed; "mob" responsible.
+- **Sherod, Will**, — May 22, 1927, Missouri. African American. Rape. Hanged.
+- **Payne, Tom**, 25 — February 1, 1927, Texas. African American. No accusation. Taken by a white mob and hanged from a tree.
+- **Buddington, George**, 55 — December 27, 1926, Florida. African American. Attempted to collect debt from a white woman at gunpoint. Taken out of town and shot to death.
+- **Lowman, Bertha**, 27 — October 8, 1926, South Carolina. African American. Alleged murder of the sheriff. Taken from jail and shot.
+- **Lowman, Demon**, 22 — October 8, 1926, South Carolina. African American. Same case as Bertha Lowman.
+- **Lowman, Clarence**, 14 — October 8, 1926, South Carolina. African American. Same case as Bertha Lowman.
+- **Nelson, Samuel**, — September 26–27, 1926, Florida. African American. Assaulting a white woman. Body found on canal bank with multiple gunshot wounds.
+- **Byrd, Raymond Arthur**, 31 — August 15, 1926, Virginia. African American. Fathering a child with a white woman. Beaten, dragged by a car and hanged from an oak tree.
+- **Clark, James**, — July 11, 1926, Florida. African American. Rape of a white girl. Taken from law officers and lynched; last known lynching in Brevard County.
+- **Ivy, L. Q.**, 17 — September 20, 1925, Mississippi. African American. Rape of a white woman. Burned at the stake.
+- **Marshall, Robert**, 39–40 — June 18, 1925, Utah. African American. Accused of killing a white guard. Lynched in front of a crowd of 1,000; photos sold door-to-door for 25 cents.
+- **Jordan, James**, Adult — March 20, 1925, Virginia. African American. Married woman "attacked" in her home. Case helped lead to Virginia Anti-Lynching Law of 1928.
+- **Washington, Willie**, 22 — January 31, 1925, Florida. African American. No accusation. Murdered by a local policeman; body displayed in county courthouse.
+- **Smith, Samuel**, 15 — December 15, 1924, Tennessee. African American. Robbed a grocery store and shot the white owner. Taken out of his hospital room and lynched by a mob of masked men.
+- **Bell, William**, 33 — October 8, 1924, Illinois. African American. Accosting two girls. Beaten to death by a mob in a Jewish neighborhood; the only lynching in Chicago history.
+- **Pullen, Joe**, 40 — December 14, 1923, Mississippi. African American. Murder of a white man. Shot and burned; Pullen shot and killed three members of the lynch mob before being killed.
+- **Simmons, Henry**, — June 7, 1923, Florida. African American. Murder of a police officer. Shot multiple times and hanged from a tree.
+- **Scott, James T.**, 35–56 — April 29, 1923, Missouri. African American. Assaulting a 14-year-old white girl. Lynched by a mob of over 100 men.
+- **Wilson, Abraham**, 33–34 — January 17, 1923, Florida. African American. Cattle stealing. Taken from jail and hanged.
+- **Carter, Sam**, 45 — January 2, 1923, Florida. African American. Sexual assault of a white woman. Falsely accused, tortured, shot, then hanged by white mob which went on a rampage burning homes.
+- **Gay, George**, 25 — December 11, 1922, Texas. African American. Attempted rape of a white woman. Chained to a tree and shot around 300 times.
+- **Smith, Less**, 25 — December 9, 1922, Arkansas. African American. Murder of Granville Edward Farish. Hanged from a tree, body riddled with bullets.
+- **Wright, Charles**, — December 1922, Florida. African American. Murder of white teacher. Tortured into confession and burned at the stake.
+- **Dickson, Cupid**, — December 5, 1922, Florida. African American. No accusation. Shot.
+- **Zarate, Elias V.**, 22 — November 11, 1922, Texas. Latino. Fight with co-worker in which Sullivan's arm was broken. Shot.
+- **Hartley, Ed**, 40–41 — October 20, 1922, Tennessee. White. Manslaughter of Connie Hartley. Shot.
+- **Hartley, George**, 21–22 — October 20, 1922, Tennessee. White. Same case as Ed Hartley.
+- **Brown, John**, — October 3, 1922, Alabama. African American. Race riot context. Listed as lynched by Senate Committee.
+- **Everett, Grover C.**, — September 28, 1922, Texas. African American. Unknown. Shot in his hotel room by four people.
+- **Johnston, Jim**, — September 28, 1922, Georgia. African American. Assault of a white woman. Hanged on the Cedar Creek bridge, body riddled with bullets.
+- **Johnson, O.J.**, — September 7, 1922, Texas. African American. Killing a turpentine camp foreman four years earlier. Hanged from a tree.
+- **Long, Jim Reed**, — September 2, 1922, Georgia. African American. Attack of a white woman, 19-year-old Ms. Violet Wood. Hanged by mob.
+- **Daniel, Filmore Watt**, 35 — August 24, 1922, Louisiana. White. Spoke out against KKK activities. Kidnapped by KKK; bodies discovered in Lake Lafourche on December 24, 1922.
+- **Richards, Thomas F.**, 30 — August 24, 1922, Louisiana. White. Same case as Filmore Watt Daniel.
+- **Rivers, Thomas**, 25 — August 30, 1922, Louisiana. African American. Assault of a white woman. Body found hanging near Shreveport-Bossier highway.
+- **Steelman, John**, 35 — August 23, 1922, Mississippi. African American. Assault on a white woman. Tied to a stake, pyre ignited by Mrs. Bruce White.
+- **Blackwell, Bayner**, — August 6, 1922, North Carolina. African American. Murder of Cy Jones. Shot per Senate Committee report.
+- **Glover, John**, 35 — August 2, 1922, Georgia. African American. Manslaughter of Deputy Sheriff Walter C. Byrd. Beaten, tied to a tree, riddled with bullets and lit on fire.
+- **Harris, Gilbert**, 28 — August 1, 1922, Arkansas. African American. Killing of Maurice Connelly in a burglary gone wrong. Seized by mob of 500; body laid back in jail.
+- **West, John**, 50 — July 28, 1922, Arkansas. African American. Fight over West using a drinking cup. Probably shot and killed.
+- **Anderson, William**, — July 24, 1922, Georgia. African American. Assaulting a white 15-year-old girl. Bullet-ridden body found near Ellenton.
+- **Mack, Oscar**, 29 — July 19, 1922, Florida. African American. Shooting death of two white men. Reported lynched but escaped; died at 67 in Ohio.
+- **Davis, Jake**, 62 — July 14, 1922, Georgia. African American. Being in an interracial relationship. Hanged by white mob.
+- **Pemberton, Joe**, — July 7, 1922, Louisiana. African American. Shot two black women. Body found hanging from a tree in Black Bayou swamp.
+- **Tankard, Philip**, — July 5, 1922, North Carolina. African American. Rioting. Shot to death after riots following a July 4 celebration.
+- **Jordan, Joe**, — July 1, 1922, Georgia. African American. Assault of employer's wife. Hanged.
+- **Harvey, James**, — July 1, 1922, Georgia. African American. Assault of employer's wife. Hanged.
+- **Lewis, Warren**, 17 — June 23, 1922, Texas. African American. Assault of a white woman. Hanged.
+- **Collins, Robert**, — June 20, 1922, Mississippi. African American. Assault of a young white woman. Hanged.
+- **Byrd, William**, — May 28, 1922, Georgia. African American. Murder of a white man. Shot (body burned).
+- **Thomas, Jesse**, 23 — May 26, 1922, Texas. African American. Rape of a white woman and murder of her companion. Shot and body burned; later proven innocent.
+- **Wilson, Gilbert**, — May 23, 1922, Texas. African American. Stealing cattle. Beaten to death.
+- **Bozier, Mose**, 60 — May 20, 1922, Texas. African American. Assault of a white woman. Hanged.
+- **Winters, Joe**, 20 — May 20, 1922, Texas. African American. Assault of white 14-year-old. Burned.
+- **Owens, Hullen**, — May 19, 1922, Texas. African American. Murder. Hanged (body burned).
+- **Atkins, Charles**, 15 — May 18, 1922, Georgia. African American. Murder of white woman. Burned.
+- **Early, Thomas**, 25 — May 17, 1922, Texas. African American. Assault of white woman. Burned.
+- **Cornish, Tom**, — May 8, 1922, Texas. African American. Murder of white, 17-year-old Eula Ausley.
+- **Curry, McKinley**, 23 — May 6, 1922, Texas. African American. Murder of white, 17-year-old Eula Ausley.
+- **Cornish, Johnny**, 19 — May 6, 1922, Texas. African American. Same case as Curry above.
+- **Jones, Mose**, 46 — May 6, 1922, Texas. African American. Same case as Curry above.
+- **Smith, Alex**, 60 — March 22, 1922, Mississippi. African American. Ran "a house of ill fame." Hanged.
+- **Tompkins, George**, 19 — March 16, 1922, Indiana. White. No accusation made. Hanged from a tree.
+- **Ingram, Jerry**, — March 17, 1922, Mississippi. African American. Assault on white woman. Lynched after bloodhounds found him 8 miles from the scene.
+- **Williams, Alfred**, — March 12, 1922, Georgia. African American. Assault of a white farmer. Shot and wounded L.O. Anderson.
+- **Culpepper, Brown**, — March 11, 1922, Louisiana. African American. Unknown. Shot dead by unmasked men; eight suspected KKK members arrested.
+- **Baker, William**, 18 — March 8, 1922, Mississippi. African American. Assault on white girl. Hanged.
+- **Jones, Will**, 28 — February 13, 1922, Georgia. African American. Unknown. Shot.
+- **Norman, P.**, — February 11, 1922, Arkansas. African American. Forced a deputy to drive at gunpoint. Pulled from a car and shot four times by masked men.
+- **Duarte, Manuel**, — February 2, 1922, Texas. Latino. Refused to leave farm. Shot.
+- **Harrison, John**, 38 — February 2, 1922, Arkansas. African American. Harassing white women. Shot.
+- **Thrasher, Will**, — February 1, 1922, Mississippi. African American. Assault of a white woman. Hanged.
+- **Bell, William Arthur**, 20 — January 29, 1922, Mississippi. African American. Rape of an elderly white woman. Shot.
+- **Strong, Charles**, — January 17, 1922, Florida. African American. Participated in a shooting that killed mailman W.R. Taylor. Hanged.
+- **Brooks, Jake**, — January 14, 1922, Oklahoma. African American. Working as a strike breaker. Hanged by militant strikers.
+- **Jenkins, Willie Lee**, — January 10, 1922, Alabama. African American. Dispute with his boss' wife; newspapers reported he "insulted a white woman." Shot.
+- **McAllister, Bill**, — January 8, 1922, South Carolina. African American. Being in an interracial relationship. Killed by gunshot.
+- **Cabeza, Manuel**, 34 — December 25, 1921, Florida. African American. Being in an interracial relationship. Shot a man who tarred and feathered him; lynched by Ku Klux Klan.
+- **Hackney, Curley**, 30 — December 13, 1921, Texas. African American. Rape of an 8-year-old white girl. Taken from jail and hanged by a mob.
+- **Rouse, Fred**, 33 — December 11, 1921, Texas. African American. Shot two white men. While hired as a strikebreaker for a whites-only union, he was attacked and shot two union protesters.
+- **Cade, Henry**, 25 — November 26, 1921, Texas. African American. Rape of an 8-year-old white girl. Taken from jail and hanged by a mob.
+- **Turner, William**, 18 — November 18, 1921, Arkansas. African American. Alleged assault of 15-year-old white girl. Shot, dragged to the park, doused in gasoline and lit on fire.
+- **Daniel, Eugene**, 16 — September 18, 1921, North Carolina. African American. Walking into a white girl's bedroom. Hanged from a tree with tire chains, shot.
+- **Eley, Jesse**, 46 — June 20, 1921, North Carolina. African American. Owned a 50-acre farm which caused jealousy from some white neighbors. Beaten, hanged, hole in head, stomach cut open.
+- **Tuggles, Brownie**, 28 — March 15, 1921, Arkansas. African American. Rape of an elderly white woman.
+- **Baird, William Roosevelt**, 21 — January 13, 1921, Alabama. African American. Union activity; killing an Alabama National Guard soldier in self-defense. Dragged by automobile, beaten, left for dead tied to a tree.
+- **Lowry, Henry**, — 1921, Arkansas. African American. Asked for his wages. Burned to death; crowd of 500.
+- **Thomas, Wade**, — December 26, 1920, Arkansas. African American. Murder of a police officer. Taken from jail by a mob, hanged from a telegraph pole, then riddled with bullets.
+- **Brown, Coleman**, — December 23, 1920, Mississippi. African American. Murder of a 14-year-old black girl. A preacher, hanged from a tree by an African American mob.
+- **Hurst, Dave**, 25 — November 14, 1920, Virginia. African American. Attempted rape of a 60-year-old white woman. Hanged and shot.
+- **Perry, Julius "July"**, 52 — November 3, 1920, Florida. African American. Voting. Sign on body: "This is what we do to niggers that vote." Prosperous black farmer.
+- **Belton, Roy**, 18 — August 28, 1920, Oklahoma. African American. Robbery and murder of a white taxi driver. Taken from jail and hanged from a tree.
+- **Daniels, Lige**, 16 — August 3, 1920, Texas. African American. Murder of a white woman. Taken from jail by a mob of approximately 1,000 to the town square and hanged.
+- **Roach, Edward "Red"**, 25 — July 7, 1920, North Carolina. African American. Rape of a 13-year-old white girl. Shot to death, then hanged. Later revealed Roach had been at work at the time of the rape.
+- **Arthur, Irving**, 19 — July 6, 1920, Texas. African American. Killed two white men in self-defense. Pulled from jail and burned alive.
+- **Arthur, Herman**, 28 — July 6, 1920, Texas. African American. Same case as Irving Arthur.
+- **Gathers, Phillip**, — June 21, 1920, Georgia. African American. Rape and murder of a 17-year-old white girl. Shot, burned, and hanged.
+- **McGhie, Isaac**, 19–20 — June 15, 1920, Minnesota. African American. Rape of a teenage girl. Taken from jail by mob, given mock trials, beaten and hanged from light-post.
+- **Jackson, Elmer**, 23 — June 15, 1920, Minnesota. African American. Same case as McGhie above.
+- **Clayton, Elias**, 18–19 — June 15, 1920, Minnesota. African American. Same case as McGhie above.
+- **Scott, Henry**, — 1920, Florida. African American. Asking a white woman to wait until he had prepared another woman's train berth. Shot.
+- **Brown, William**, 41 — September 28, 1919, Nebraska. African American. Rape. Part of the Omaha race riot of 1919.
+
+## 1910s
+
+- **Gonzales, Cinco**, — September 7, 1919, Texas. Latino. Murder. Shot after an ambush.
+- **Ortez, Salvador**, — September 13, 1919, Colorado. Latino. Killing patrolman. Accused of shooting patrolman Jeff Evans; mob broke into jail, captured and hanged from girders of a bridge.
+- **Gonzalez, Jose**, — September 13, 1919, Colorado. Latino. Same case as Ortez above.
+- **Cox, Obe**, — September 10, 1919, Georgia. African American. Accused of murdering a white farmer's wife. Body riddled with bullets and burned at the stake.
+- **Williams, Eugene**, 17 — July 27, 1919, Illinois. African American. Racial unrest. White officer refused to arrest the murderer; instead arrested a black man who complained. Part of the Chicago race riot of 1919.
+- **Jennings, Chilton**, 28 — July 24, 1919, Texas. African American. Assaulted a white woman. Mob of 1,000 stormed jail; dragged by horse to town square and hanged.
+- **Hartfield, John**, — June 26, 1919, Mississippi. African American. Assaulting a young white woman. Jackson Daily News carried headlines announcing exact time and place; ten thousand people answered.
+- **Walters, Lemuel**, — June 17, 1919, Texas. African American. Making "indecent advances" to a white woman. Led to the Longview riots.
+- **Livingston, Frank**, 25 — May 21, 1919, Arkansas. African American. False murder accusation. One of many returning WWI veterans lynched in 1919.
+- **Moore, Will**, — May 20, 1919, Mississippi. African American. Shooting J.H. Rogers. Lynched.
+- **Clay, Lloyd**, — May 15, 1919, Mississippi. African American. Attempted rape of a white woman. 1,000 men broke through three steel doors to abduct him; hanged, shot, and burned.
+- **Richards, Benny**, — May 1, 1919, Georgia. African American. Accused of murdering his ex-wife and shooting 5 others. 300 men lynched him.
+- **Holden, George**, — April 29, 1919, Louisiana. African American. Writing a suggestive note to a white woman. Mob stopped a train, dragged him off, and shot him.
+- **Mack, Daniel**, 24 — April 14, 1919, Georgia. African American. Brushing up against a white man while walking. Beaten; survived by playing dead.
+- **Ruffin, Henry**, — April 13, 1919, Georgia. African American. Son of man believed to have killed lawman.
+- **Ruffin, John**, — April 13, 1919, Georgia. African American. Son of man believed to have killed lawman.
+- **Wilkins, Willie**, — April 13, 1919, Georgia. African American. Friend of man believed to have killed lawman.
+- **Little, Wilbur**, — April 1919, Georgia. African American. Wearing uniform of his WWI military service to the United States.
+- **Waters, Jim**, — 1919, Georgia. African American. Rape accusation. Investigation closed in one hour with no witnesses interviewed.
+- **Prince, Henry**, — 1919, Georgia. African American. Unknown.
+- **Hamilton, Eugene**, — 1919, Georgia. African American. Convicted by all-white jury of attempting to shoot a white farmer. Stopped by mob of 60 while being driven for protection; shot to death on bridge.
+- **Ashley, Bob**, — 1919, Georgia. African American. Hoped to shoot someone else. Men thought another man might be inside Ashley's house; shot into the house, mortally wounding Ashley.
+- **Kinkkonen, Olli**, 38 — September 18, 1918, Minnesota. White (Finnish-American). Refusal to join the military during World War I. Tarred and feathered before being hanged.
+- **Taylor, George**, — November 5, 1918, North Carolina. African American. Rape of a white woman. No charges filed.
+- **Woodson, Edward**, — December 10, 1918, Wyoming. African American. Murder of a white man. Hanged in railroad terminal.
+- **Howze, Maggie**, 20 — December 20, 1918, Mississippi. African American. Alleged murder of dentist. Dentist had affairs with both pregnant sisters.
+- **Howze, Alma**, 16 — December 20, 1918, Mississippi. African American. Same case as Maggie Howze.
+- **Clark, Major**, 20 — December 20, 1918, Mississippi. African American. Same case.
+- **Clark, Andrew**, 15 — December 20, 1918, Mississippi. African American. Same case.
+- **Thompson, Allie**, — 1918, Virginia. African American. Assault.
+- **Turner, Mary**, 18 — May 19, 1918, Georgia. African American. Publicly opposed and threatened legal action against white people who had murdered her husband. Hanged upside down from tree, doused in gasoline and motor oil and set on fire; still alive when mob member split her abdomen open with a knife; unborn child fell to the ground and was stomped.
+- **Turner, Hayes**, 25 — May 18, 1918, Georgia. African American. Accused of helping kill an abusive landowner. Wife Mary killed next day for defending him.
+- **García, Florencio**, 33 — April 5, 1918, Texas. Latino. Robbery. Disappeared while in Rangers' custody; bones and clothing found beside road.
+- **Prager, Robert**, 30 — April 5, 1918, Illinois. White (German-American). Socialist; sympathy to Germany during World War I. Forced to sing patriotic songs and kiss the flag before being hanged.
+- **McIlherron, Jim**, — February 12, 1918, Tennessee. African American. Murders of two white people. Tortured, then burned alive. Spectators came from as far as 50 miles away.
+- **15 Mexican Americans**, ages 15–50 — 1918, Texas. Latino. Accused of stealing and ambushing Texas Rangers. Texas Rangers entered Porvenir and executed all 15 by gunshot.
+- **Scott, Lation**, 32 — December 2, 1917, Tennessee. African American. Rape of a white woman. Tortured for 3.5 hours and then burned alive.
+- **Daley, Starr**, 26 — May 6, 1917, Arizona. White. Homicide (two murders) plus two rapes. Taken from sheriff en route to jail and hanged from telephone pole.
+- **Persons, Ell**, about 50 — May 22, 1917, Tennessee. African American. Rape and murder of a white girl. No charges filed.
+- **Crawford, Anthony**, 51 — October 21, 1916, South Carolina. African American. Offensive language. Coroner's jury: "persons unknown."
+- **Dennis, Mary**, — August 18, 1916, Florida. African American. Helping a man who shot and killed a constable. Had two children and was pregnant.
+- **Young, Stella**, — August 18, 1916, Florida. African American. Same case as above. Had four children.
+- **McHenry, Andrew**, — August 18, 1916, Florida. African American. Same case as above.
+- **Dennis, James**, — August 18, 1916, Florida. African American. Same case; shot.
+- **Dennis, Bert**, — August 18, 1916, Florida. African American. Same case as above.
+- **Baskins, Rev. Josh J.**, — August 18, 1916, Florida. African American. Same case as above.
+- **Hoskins, Silas**, — Summer of 1916, Arkansas. African American. "Vanished"; believed killed because a white man coveted his successful saloon business. Uncle of author Richard Wright.
+- **Lerma, Geronimo**, 18 — June 20, 1916, Texas. Latino. Rape of a white woman. Suspected to have assaulted a white woman; shot and left dead.
+- **Chapa, Melquiades**, 20–23 — May 19, 1916, Texas. Latino. Murder of A.L. Austin and Charles Austin. Hanged in Cameron County Jail.
+- **Buenrostro, Jose**, 25 — May 19, 1916, Texas. Latino. Same case as Chapa above.
+- **Washington, Jesse**, 17 — May 15, 1916, Texas. African American. Rape and murder of a white woman (rape accusation was false). Dragged behind car, castrated, fingers and ear cut off, burned alive. Professionally photographed; pictures sold as postcards.
+- **Black, Joseph**, 54 — April 5, 1916, North Carolina. African American. Smuggling weapons to his 14-year-old son in jail. Taken from jail and shot.
+- **Lake, Major**, — January 20, 1916, Georgia. African American. Suspicion of murder of a sheriff.
+- **Lake, Dewey**, — January 20, 1916, Georgia. African American. Same case.
+- **Lake, Frank**, — January 20, 1916, Georgia. African American. Same case.
+- **Lake, Felix**, — January 20, 1916, Georgia. African American. Same case.
+- **Semore, Bodius**, — January 20, 1916, Georgia. African American. Same case.
+- **Richards, John**, — January 12, 1916, North Carolina. African American. Murder. Taken from jail and lynched.
+- **Lang, Ed**, — 1916, Texas. African American. "Attacking a young woman." Taken from sheriff's posse and hanged.
+- **Brown, Jeff**, — 1916, Mississippi. African American. Bumping into a white girl at a train station. Pictures of lynching sold to white citizens for five cents each.
+- **Stevenson, Cordella**, — December 15, 1915, Mississippi. African American. Her son accused of burning a white man's barn; he was unavailable, so they raped and murdered her.
+- **10 Mexican-Americans**, — October 19, 1915, Texas. Latino. Train wrecking and murder. Americans began to hang or shoot Mexicans thought to be involved in wreck.
+- **Bazán, Jesus**, 67 — September 27, 1915, Texas. Latino. No accusation. Went to report stolen horses to Texas Rangers; Ranger Henry Ransom followed and shot both dead.
+- **Longoria, Antonio**, 49 — September 27, 1915, Texas. Latino. Same case as Bazán above.
+- **Six Mexicans**, — August 18, 1915, Texas. Latino. Murder. Two taken from San Benito jail; four from Mercedes; shot to death and bodies burned.
+- **Frank, Leo**, 31 — August 17, 1915, Georgia. Jewish. Killing a 13-year-old girl. No charges filed; posthumously pardoned.
+- **Stanley, Will**, — July 29–30, 1915, Texas. African American. Murder of 3 children and assaulting parents. Lynched and burned. Claimed leader of mob had hired him.
+- **Muñóz, Adolfo**, — July 28, 1915, Texas. Latino. Murder and horse theft. Held Sheriff at gunpoint; hanged from a tree.
+- **Manriquez, Gorgonio**, — July 23–24, 1915, Texas. Latino. Resisting arrest. Shot.
+- **Manriquez, Lorenzo**, — July 23–24, 1915, Texas. Latino. Same case as Gorgonio.
+- **Green, James D.**, 14 — July 4, 1915, Georgia. African American. Mob ran into them while hunting for murderer of white farmer.
+- **Bostick, William**, — July 4, 1915, Georgia. African American. Same case.
+- **Green, Alonzo**, — July 4, 1915, Georgia. African American. Same case.
+- **Ward, Benjamin E.**, 37 — May 9, 1915, Oklahoma. White. Murdering his wife. Mob expected him to be freed on grounds of insanity.
+- **Leon, Hilario**, — April 19, 1915, Arizona. Latino. Outlawry. Hanged from a tree by two white police officers; bodies left to rot in desert gulch.
+- **Leon, José**, — April 19, 1915, Arizona. Latino. Same case as Hilario Leon.
+- **Sheffield, Caesar**, 17 — April 17, 1915, Georgia. African American. Allegedly stealing meat from a smokehouse owned by a white man. Jailors abandoned jail; mob took him to a field and shot him multiple times.
+- **Padilla, Adolfo**, — 1914, New Mexico. Latino. Accused of killing his wife. Mob seized him from jail and chopped his body into pieces.
+- **Shields, Dallas**, — March 17, 1914, Missouri. African American. Murdering a police officer.
+- **Turner, Allen**, 47 — March 29, 1914, Louisiana. African American. Accused of assaulting a white man. Taken from deputy sheriff and shot to death; body dragged through roads.
+- **Gonzales, Isidro**, — December 20, 1914, Texas. Latino. Murder of a county jailer. Found riddled with bullets after escape.
+- **Sullivan, Jane**, — November 25, 1914, Mississippi. African American. Alleged barn burning. Confessed after nooses placed around necks; hanged by mob of more than 100.
+- **Sullivan, Fred**, — November 25, 1914, Mississippi. African American. Same case as Jane Sullivan.
+- **Collins, J.C.**, about 34 — April 4, 1913, Montana. African American. Murder of Sheridan County Sheriff Thomas Courtney. Hanged from a telephone pole.
+- **Green, Joe**, 16 — February 25, 1913, Alabama. African American. Fatal shooting of Nobie Spicer. Shot by mob led by victim's husband.
+- **Richardson, Joseph**, — September 26, 1913, Kentucky. African American. Assaulting a white girl. Town drunk who accidentally stumbled near girl; hanged.
+- **Rucker, Divel**, 20 — 1913, Mississippi. African American. Murder. Tied to iron stake, covered with tar, and set afire. Family of victim shot him as he burned.
+- **Williams, Andrew**, 35 — 1913, Mississippi. African American. Murder. Dragged from jail and hanged.
+- **White, Henry**, — 1913, Florida. African American. Found under white woman's bed. Hanged, noose broke, shot.
+- **Delgadillio, Demecio**, 28 — 1913, New Mexico. Latino. Murder. Hanged in Bernalillo County Jail.
+- **9 Mexicans**, — 1913, Texas. Latino. Being Mexican bandits. Hanged.
+- **Johnson, Walter**, — September 4, 1912, West Virginia. African American. Assault and rape of a 14-year-old girl. Taken out of jail by armed mob; hanged and shot.
+- **Edwards, Rob**, — September 1912, Georgia. African American. Alleged murder of 18-year-old woman. Taken out of jail by armed mob; hanged and shot.
+- **Davis, Dan**, 25 — 1912, Texas. African American. Assault and rape of a 16-year-old white girl. Burned alive by a mob.
+- **Lewis, Sanford**, — 1912, Arkansas. African American. Shooting a constable. Five policemen fined; eleven police officers fired; mayor voted out; man charged with lynching acquitted.
+- **Johnson, King**, 28 — December 26, 1911, Maryland. African American. Alleged murder of Frederick Schwab. Mob broke into unguarded jail; when Johnson fought back, he was beaten with irons and shot.
+- **Pettigrew, Pearl**, 12 — December 5, 1911, Tennessee. African American. Jealousy over victim's respectability and financial success. Shot, hanged, and bodies burned. Two killers convicted and executed.
+- **Pettigrew, Fred**, 13 — December 5, 1911, Tennessee. African American. Same case as Pearl Pettigrew.
+- **Pettigrew, Ben**, 40s — December 5, 1911, Tennessee. African American. Same case as Pearl Pettigrew.
+- **Walker, Zachariah**, 20–24 — August 16, 1911, Pennsylvania. African American. Killing of a police officer, possibly in self-defense. Taken from hospital room and burned alive. Fifteen indicted; all acquitted.
+- **Lee, John**, — August 12, 1911, Oklahoma. African American. Attempted murder and rape of a white woman. Shot and burned.
+- **Jones, Commodore**, 26 — August 11, 1911, Texas. African American. Accused of insulting a white woman over the telephone. Forced to climb a telephone pole and was hanged.
+- **Gomez, Antonio**, 14 — June 19, 1911, Texas. Latino. Killing a German man. Four men intercepted and lynched him while being transported to jailhouse.
+- **Bradford, William**, — June 16, 1911, Mississippi. African American. Accused of attempted murder of two white farmers.
+- **Nelson, Laura**, 33 — May 25, 1911, Oklahoma. African American. Killing of Deputy Sheriff George H. Loney. Gang raped and lynched together with her son.
+- **Nelson, L.D.**, 14 — May 25, 1911, Oklahoma. African American. Same case as Laura Nelson.
+- **Porter, Will**, — April 20, 1911, Kentucky. African American. Shooting a white man. Shot in an opera house.
+- **West, James**, — January 16, 1911, Kentucky. African American. Charged with detaining Miss Mary Coley. Same lynching.
+- **Patterson, Wade**, — January 16, 1911, Kentucky. African American. Charged with detaining Miss Elizabeth Rubel. Lynched; rope snapped; afterward shot multiple times.
+- **Marshall, Eugene**, — January 16, 1911, Kentucky. African American. Convicted of murdering an aged negro woman. Hanged from the Chesapeake and Ohio bridge.
+
+## 1900s
+
+- **Salzner, Henry**, 30 — November 11, 1909, Illinois. White. Murder of his wife. Dragged from jail cell and hanged from a telegraph pole.
+- **James, William**, 24 — November 11, 1909, Illinois. African American. Rape and murder of a white woman.
+- **West, Jesse**, 46 — April 19, 1909, Oklahoma. White. Suspicion of murder of a lawman. Lynched by a mob.
+- **Allen, Joseph**, 43 — April 19, 1909, Oklahoma. White. Same case as West.
+- **Burrell, Berry**, 38 — April 19, 1909, Oklahoma. White. Same case as West.
+- **Miller, Jim**, 47 — April 19, 1909, Oklahoma. White. Same case as West.
+- **Brown, Joe**, — March 25, 1909, West Virginia. White. Shooting a law officer.
+- **Hilliard**, 18 — 1909, Arkansas. African American. Using inappropriate language with a white woman. Hanged from a telephone pole.
+- **Wades, Jake**, — 1909, Florida. African American. Rape of a white woman. Transported from Gainesville to Lakeland to be identified and lynched.
+- **Patton, Lawson "Nelse"**, — September 8, 1908, Mississippi. African American. Murder of a white woman. Senator William V. Sullivan: "led the mob...and I'm proud of it."
+- **Miller, William**, — August 1908, Alabama. African American. Labor activist.
+- **Jones, Thomas**, — July 31, 1908, Kentucky. African American. Victims expressed approval of lodge brother Rufus Browder killing his employer. Lynched from a tree; note pinned: "Let this be a warning to you niggers."
+- **Jones, Robert**, — July 31, 1908, Kentucky. African American. Same case.
+- **Jones, Virgil**, — July 31, 1908, Kentucky. African American. Same case.
+- **Riley, Joseph**, — July 31, 1908, Kentucky. African American. Same case.
+- **Shaw, Leander**, 35 — July 29, 1908, Florida. African American. Attempted murder and rape of a white woman. Mob broke into jail and lynched him in Plaza Ferdinand VII; three members of lynch mob shot and killed by police.
+- **Smith, Ted**, 18 — July 27, 1908, Texas. African American. Rape of a 16-year-old white girl. Taken by mob from Sheriff and burned.
+- **Williams, Frank**, 20 — June 15, 1908, Texas. African American. Murder of two white men. Hanged by mob of 150.
+- **Manuel, Will**, 25 — June 15, 1908, Texas. African American. Same case.
+- **Williams, Cleveland**, 27 — June 15, 1908, Texas. African American. Same case.
+- **Spellman, Moss**, 24 — June 15, 1908, Texas. African American. Same case.
+- **Johnson, Will**, 24 — June 15, 1908, Texas. African American. Same case.
+- **Evans, Jerry**, 22 — June 15, 1908, Texas. African American. Same case.
+- **Williams, Earnest**, — June 1908, Arkansas. African American. Using offensive language.
+- **Scott, Charley**, — February 28, 1908, Texas. African American. Peeping Tom looking in windows. Hanged on tree.
+- **Pigot, Eli**, — February 10, 1908, Mississippi. African American. Rape of a white woman. Shot and hanged.
+- **Long, Jack**, — February 6, 1908, Florida. White. Murder. Hanged.
+- **Burns, William**, 22 — October 6, 1907, Maryland. African American. Alleged murder of Patrolman August Baker. Crowd of 10,000 examined the body.
+- **Higgins, Loris**, — August 27, 1907, Nebraska. White. Murder of a farmer and his wife and rape of daughter. Taken from law officers, hanged from a bridge, and shot.
+- **Cullen, James**, 62 — January 9, 1907, Iowa. White (Irish). Murdered his wife and stepson. Hanged.
+- **Davis, Henry**, — December 21, 1906, Maryland. African American. Assaulting a white woman. Dragged from jail cell and shot over 100 times.
+- **Pitts, Slab**, — October 26, 1906, Texas. African American. Living with a white woman. Dragged to death before being hanged.
+- **Davis, Anthony**, 40 — October 9, 1906, Arkansas. African American. Rape of a 15/16-year-old black girl. Hanged by an African American mob.
+- **Robinson, Dick**, — October 6, 1906, Alabama. African American. Assaulting white women.
+- **Irwin, George**, — August 6, 1906, North Carolina. African American. Accused of murdering a white family. Paraded through town and hanged from a tree.
+- **Lee, Henry**, — August 6, 1906, North Carolina. African American. Same case.
+- **Dillingham, "Jack"**, — August 6, 1906, North Carolina. African American. Same case.
+- **Gillepsie, John**, 16 — August 6, 1906, North Carolina. African American. Same case.
+- **Gillepsie, Nease**, — August 6, 1906, North Carolina. African American. Same case.
+- **Allen, William**, 25 — April 14, 1906, Missouri. African American. Assault of white woman. Hanged from Gottfried Tower and burned in courthouse square by mob of more than 2,000. All three suspects were innocent.
+- **Coker, Fred**, 21 — April 14, 1906, Missouri. African American. Same case as Allen.
+- **Duncan, Horace B.**, 20 — April 14, 1906, Missouri. African American. Same case as Allen.
+- **Johnson, Ed**, 23–24 — March 19, 1906, Tennessee. African American. Rape of a white woman. Hanged from Walnut Street Bridge. Sheriff and others sentenced to jail. Only criminal case with direct U.S. Supreme Court involvement.
+- **Richardson, Bunk**, — February 11, 1906, Alabama. African American. Not charged. Arrested as a witness; mob seized him from jail and hanged him from a train trestle.
+- **Goodman, Augustus**, — November 4, 1905, Georgia. African American. Accused of killing Decatur County Sheriff Martin C. Stegall.
+- **Green, Jim**, — December 12, 1905, Mississippi. African American. Rape of an 8-year-old black girl. Hanged by an African American mob.
+- **Price, Sandy**, 20 — June 30, 1905, Georgia. African American. Attempted rape. Shot.
+- **Harris, Robert**, — June 30, 1905, Georgia. African American. Assault. Shot.
+- **Yerby, Gene**, — June 30, 1905, Georgia. African American. Theft. Shot.
+- **Allen, Richard**, — June 30, 1905, Georgia. African American. Murder. Shot.
+- **Robinson, Richard**, — June 30, 1905, Georgia. African American. Accomplice to murder. Shot.
+- **Robinson, Lewis**, — June 30, 1905, Georgia. African American. Accomplice to murder. Shot.
+- **Elder, Claude**, — June 30, 1905, Georgia. African American. Accomplice to murder. Shot.
+- **Aycock, Alonzo**, — June 30, 1905, Georgia. White. Murder of a man and his wife. Shot.
+- **Munoz, Carlos**, — 1905, Texas. Latino. Assaulting a white woman. Shot and hanged by mob of 40+ people.
+- **Maples, Horace**, — September 7, 1904, Alabama. African American. Murder. Mob of 2,000 burned jail, then hanged and shot him.
+- **Reed, Paul**, 25–26 — August 16, 1904, Georgia. African American. Murder of five members of a family. Seized by mob from courthouse after conviction, chained to stump and burned.
+- **Cato, Will**, — August 16, 1904, Georgia. African American. Same case as Reed above.
+- **Thompson, Marie**, — June 15, 1904, Kentucky. African American. Killing John Irvin, a white landowner. Hanged from a tree, escaped and was shot. Died the following day in jail.
+- **Dickerson, Richard**, — March 7, 1904, Ohio. African American. Murder of Patrolman Charles B. Collis. Shot and then hanged.
+- **Holbert, Luther**, — February 7, 1904, Mississippi. African American. Murder of a white landowner. Tortured and burned alive; crowd of some 600 attended.
+- **Unnamed female**, — February 7, 1904, Mississippi. African American. Same case as Holbert.
+- **Clark, Jumbo**, — January 14, 1904, Florida. African American. Assault of 14-year-old white girl. Taken by mob on way to jail, hanged and shot.
+- **Lee, "General"**, — January 13, 1904, South Carolina. African American. Knocking on the door of a white woman's house.
+- **Wyatt, David**, — June 6, 1903, Illinois. African American. Shooting superintendent Charles Hertel. Hanged from a telephone pole and burned.
+- **White, George**, 24 — June 23, 1903, Delaware. African American. Accused of sexually assaulting and stabbing to death an 18-year-old girl. Taken from city jail and burned alive.
+- **Surasky, Abraham**, 30 — July 29, 1903, South Carolina. Jewish-American. Being a Jewish-American peddler who was helping the murderer's wife carry things. Murdered by gun and ax.
+- **Steers, Jennie**, Adult — July 25, 1903, Louisiana. African American. Poisoning daughter of a planter.
+- **Jarvis, Washington**, 25 — May 20, 1903, Florida. White. Accused of murdering his cousin.
+- **Malone, "Rev" D.M.**, 50 — May 3, 1903, Missouri. White. Suspect arrested for living with woman not his wife. Officer killed by mob, who then shot and killed prisoner.
+- **Johnson, William**, — April 26, 1903, Illinois. African American. Assaulting a girl. Hanged.
+- **Fambro, William**, — February 24, 1903, Georgia. African American. Insulted white home.
+- **Unknown Mexican**, — 1903, Arizona Territory. Latino. Same case as Vazquez.
+- **Vazquez**, 17 — 1903, Arizona Territory. Latino. Stealing cattle and skinning stolen beef. Found hanging from a tree.
+- **Dillard, James**, — November 20, 1902, Indiana. African American. Rape of two white women.
+- **Brown, Curtis**, — October 8, 1902, Tennessee. African American. One confessed to murder of a white man and claimed the other was accomplice.
+- **Burley, Garfield**, — October 8, 1902, Tennessee. African American. Same case as Brown.
+- **Tucker, Alonzo**, 28 — September 18, 1902, Oregon. African American. Assaulting a white woman. Shot, hanged from 7th Street bridge.
+- **Scruggs, Robert**, — September 1, 1902, Florida. African American. Suspected accomplice. Same as Price below.
+- **Price, Manny**, — September 1, 1902, Florida. African American. Murder. Taken by mob on way to jail, hanged and shot.
+- **Craven, Charles**, 22 — July 31, 1902, Virginia. African American. Assault.
+- **Gillespie, Harrison**, 13 — June 11, 1902, North Carolina. African American. Murder of a white woman. Hanged by mob of 400; bodies shot dozens of times.
+- **Gillespie, James**, 11 — June 11, 1902, North Carolina. African American. Same case as Harrison Gillespie.
+- **Carter, James**, 20 — April 5, 1902, Virginia. African American. Unknown.
+- **Yellow Wolf, John**, — January 18, 1902, South Dakota. Native American (Rosebud Sioux). Horse stealing. Hanged from a tree near White River.
+- **Estes, Silas**, — October 31, 1901, Kentucky. African American. "Forcing a 15-year-old boy to commit a crime." Taken from jail by mob at 2:00 a.m. and hanged in front of courthouse.
+- **Wilson, Matthew**, 35 — October 25, 1901, Tennessee. White. Attempted rape of his 16-year-old sister-in-law. Shot seven times.
+- **Hampton, Peter**, — August 20, 1901, Missouri. African American. Burned alive in his home.
+- **Godley, French**, 70 — August 20, 1901, Missouri. African American. William Godley's grandfather. Shot to death.
+- **Godley, William**, 32 — August 20, 1901, Missouri. African American. Murder of a white woman. Seized from jail by mob and lynched. Mob went on rampage in nearby black community.
+- **Davis, Charles**, — August 2, 1901, Tennessee. White. Rape of a 14-year-old white girl. Taken from jail and hanged.
+- **Rochelle, Fred**, 16 — May 29, 1901, Florida. African American. Rape and murder of a white woman. Doused with kerosene and burned. Special train from Lakeland to see the "barbecue."
+- **Brigman, Felton**, — May 3, 1901, Louisiana. African American. Rape of a 6-year-old black girl. Taken from jail and hanged by an African American mob.
+- **Crutchfield, Ballie**, — March 15, 1901, Tennessee. African American. Revenge for alleged theft committed by victim's brother. Bound, shot, and thrown in a creek.
+- **Ward, George**, — February 26, 1901, Indiana. African American. Suspected of murder of a white woman. Struck in head with sledgehammer; hanged from bridge, burned; toes and hobnails kept as souvenirs.
+- **Berryman, Peter**, 45 — February 20, 1901, Arkansas. African American. Kicking a young white girl. Beaten, shot, and hanged.
+- **Carter, George**, — February 11, 1901, Kentucky. African American. "Assaulting a white woman."
+- **Alexander, Fred**, 22 — January 15, 1901, Kansas. African American. Rape and murder allegations. Lynched and burned at stake.
+- **Dodson, Ed**, — January 2, 1901, Georgia. African American. Rape of a 7-year-old black girl. Shot by an African American mob.
+- **Rolla, John**, — December 17, 1900, Indiana. African American. Murder. Hanged in front of the Boonville Courthouse.
+- **Henderson, Jim**, — December 16, 1900, Indiana. African American. Murder. Shot in his cell, dragged across courtyard, hanged next to Rowland.
+- **Rowland, Bud**, — December 16, 1900, Indiana. African American. Murder. Hanged from a tree on east side of Rockport courthouse, body shot with bullets.
+- **Porter, Preston**, 15 — November 16, 1900, Colorado. African American. Rape and murder of a 12-year-old white girl. Burned alive by a mob. Led to Colorado reinstating the death penalty.
+- **Mills, Avery**, about 22 — August 29, 1900, North Carolina. African American. Murder. Shot.
+- **Wright, Charlotte**, 62 — August 27, 1900, Illinois. White. Performed an abortion that killed a 16-year-old girl. Shot during shoot-out with sheriff and angry mob that set fire to her home.
+- **Lee, William**, 29 — May 11, 1900, West Virginia. African American. Assault on a white woman.
+- **Clayton, Thomas**, — March 9, 1900, Mississippi. African American. Rape of a 10-year-old black girl. Shot by an African American mob.
+- **Gause, Anderson**, — January 16, 1900, Tennessee. African American. Helping two Black prisoners escape who had killed two law officers. Hanged from a tree.
+- **Watt, W.W.**, — January 5, 1900, Virginia. White. Assault. Shot.
+
+## 1890s
+
+- **Martin Severts**, — October 1899, Alaska Territory. White. Murder of a miner. Hanged from a tree following a mock trial at his own request.
+- **Benjamin Thomas**, 16 — August 8, 1899, Virginia. African American. Attempted rape of an 8-year-old white girl. Hanged from a lamppost at Cameron and Lee Streets.
+- **Frank Embree**, — July 29, 1899, Missouri. African American. Rape of a 14-year-old white girl. Taken from officers and lynched.
+- **Rosario Fiducia**, — July 20, 1899, Louisiana. Italian. Not involved in dispute; was nearby when lynching occurred; rounded up and lynched because he was Italian.
+- **Giovanni Cerami**, — July 20, 1899, Louisiana. Italian. Same case as Fiducia.
+- **Pasquale DiFatta**, — July 20, 1899, Louisiana. Italian. Same case as above.
+- **Giuseppe DiFatta**, — July 20, 1899, Louisiana. Italian. Same case as above.
+- **Francesco DiFatta**, — July 20, 1899, Louisiana. Italian. Shooting a doctor. Sicilian immigrant grocery store owners quarreled with local doctor.
+- **Sam Hose**, about 24 — April 23, 1899, Georgia. African American. Murder of his white employer and rape of employer's wife. Body parts for sale in a store. Widely publicized and privately investigated.
+- **John Anderson**, — October 23, 1898, Alabama. African American. Murder. Hanged.
+- **Puckett, Lee**, — September 12, 1898, Virginia. African American. Attempted rape of a white woman. Shot by mob. Was a borderline intellectually disabled mental patient. Six members of mob convicted.
+- **James, John Henry**, Adult — July 12, 1898, Virginia. African American. Rape of a white woman. Hanged and shot by mob which included the accuser's brother.
+- **King, Garfield**, 18 — May 25, 1898, Maryland. African American. Shooting a white man. Hanged from a tree outside courthouse; shot and beaten.
+- **Baker, Julia**, 2 — February 22, 1898, South Carolina. African American. Infant daughter killed in same attack as father.
+- **Baker, Frazier B.**, 41 — February 22, 1898, South Carolina. African American. Appointed Postmaster. House burned by white mob. Infant daughter killed.
+- **Sampson, Palmer**, 17 — January 8, 1898, Oklahoma Territory. Seminole. Rape and murder of a white woman. Chained by the neck and burned alive.
+- **McGeisey, Lincoln**, 18 — January 8, 1898, Oklahoma Territory. Seminole. Same case as Sampson.
+- **Murray, James**, — December 6, 1897, Arkansas. White. Victim was a law officer shot and lynched by friends of a man arrested for murder.
+- **Ireland, Phillip**, — November 13, 1897, North Dakota. Native American. Murder of a white family. Hanged from a beef windlass.
+- **Coudot, Alex**, — November 13, 1897, North Dakota. Native American. Same case as Ireland.
+- **Holy Track, Paul**, 19 — November 13, 1897, North Dakota. Native American. Same case as Ireland.
+- **Andrews, William**, 17 — June 9, 1897, Maryland. African American. Rape of a white woman. Hanged from a walnut tree after pleading guilty and being sentenced to death.
+- **Mitchell, Charles**, 23 — June 4, 1897, Ohio. African American. Rape and robbery of a white woman. Hanged from a tree after pleading guilty. Three members of lynch mob shot and killed by police.
+- **McCoy, Joseph**, 19 — April 23, 1897, Virginia. African American. Assault on a young girl.
+- **Daniels, Alfred**, — November 26, 1896, Florida. African American. Suspicion of arson (barn burning), no evidence. Taken by mob on way to jail, hanged and shot.
+- **Venturella, Giuseppe**, 48 — August 8, 1896, Louisiana. Italian. Same case as Saladino.
+- **Arena, Salvatore**, 27 — August 8, 1896, Louisiana. Italian. Murder. Accused of different murder; happened to be in same prison. After lynching, another person confessed.
+- **Saladino, Lorenzo**, 33–36 — August 8, 1896, Louisiana. Italian. Murder. Lynched to "teach the lawless Italians a salutary lesson."
+- **Randolph, Sidney**, Adult — July 4, 1896, Maryland. African American. Killing a white girl. Taken from jail by a mob.
+- **Cocking, Joseph**, 34–35 — June 28, 1896, Maryland. English. Murder of his wife and sister-in-law. Hanged on a bridge at outskirts of town.
+- **Crawford, Foster**, — February 26, 1896, Texas. White. Bank robbery and killing of cashier. Mob stormed prison; hanged in front of the bank building.
+- **Lewis, Elmer "Kid"**, 20 — February 26, 1896, Texas. White. Same case as Crawford.
+- **Castellán, Aureliano**, — January 30, 1896, Texas. Latino. Accused of looking at a white woman. Shot and burned.
+- **Smith, George**, — January 10, 1896, New York. English. Murder of his father-in-law and wounding a posseman. Shot by mob; ruled by coroner as suicide.
+- **Hilliard, Robert Henson**, — October 29, 1895, Texas. African American. Rape and murder of a white woman. Burned.
+- **Suiato, Floantina**, — October 12, 1895, Texas. Latino. Murder. 10 masked men took him from jail to the Nueces River, hanged him from a tree, and riddled his body with bullets.
+- **Black farm hand**, — August 30, 1895, Mississippi. African American. Being the father of a child of a 14-year-old white girl. Captured by angry mob, hanged from tree, body riddled with bullets.
+- **Divers, Emmett**, Adult — August 15, 1895, Missouri. African American. Murder of a white woman. Hanged from bridge, then hanged a second time from telegraph pole at fairground. Body and cabin burned.
+- **Henson, Jacob**, — May 28, 1895, Maryland. African American. Murder. Hanged.
+- **Rawls, William**, — April 2, 1895, Florida. African American. Murder. Hanged and shot.
+- **Williams, Stephen**, — October 20, 1894, Maryland. African American. Rape of a white woman. Hanged from a bridge and shot.
+- **Jackson, William**, — December 1, 1894, Florida. African American. Rape of a black woman. Hanged by African American mob.
+- **Hicks, Amos**, — May 17, 1894, Mississippi. African American. Arson. Shot.
+- **Puryear, Richard**, about 35 — March 15, 1894, Pennsylvania. African American. Murder. Lynched by a mob after escaping from jail.
+- **Willis, Charles**, — January 12, 1894, Florida. African American. Being a "desperado." Shot and burned in bed.
+- **Miller, C.J.**, — July 7, 1893, Kentucky. African American. Killing two white girls. Taken from jail, hanged, and dead body cremated. Investigated by Ida B. Wells.
+- **Shorter, William**, 17 — June 13, 1893, Virginia. African American. Assault on a white woman.
+- **Bush, Samuel J.**, — June 3, 1893, Illinois. African American. Rape of a white woman, Minnie Cameron Vest. Hanged from a telephone pole.
+- **Blount, Alfred**, — February 9, 1893, Tennessee. African American. Assault. Beaten, stabbed, and hanged from Walnut Street Bridge.
+- **Peterson, John**, Adult — April 24, 1893, South Carolina. African American. Attack on a white girl.
+- **Smith, Henry**, 17 — February 1, 1893, Texas. African American. Kidnapping and murder of white girl; confessed under duress. Tortured, burned with hot irons, doused in oil and set afire; remains sold as souvenirs.
+- **Ruggles, Charles**, 33 — July 24, 1892, California. African American. Stagecoach robbery and murder. Hanged from a derrick.
+- **Ruggles, John**, 33 — July 24, 1892, California. African American. Same case.
+- **Mosley, Julian**, — July 13, 1892, Arkansas. African American. Rape of his 7-year-old stepdaughter. Taken from jail and hanged from a tree by an African American mob.
+- **Donnelly, Robert**, — June 29, 1892, Arkansas. African American. Kidnapping and rape of a 12-year-old black girl. Taken from jail and hanged by African American mob.
+- **Bates, William**, — June 27, 1892, Tennessee. White. Alleged murder of his wife. Mob formed as officers were transporting him to jail. Hanged.
+- **Lewis, Robert**, 28 — June 2, 1892, New York. African American. Assaulting a white woman. Hanged.
+- **Stewart, Charles**, — May 21, 1892, Arkansas. African American. Rape. Suspect killed Deputy Sheriff while escaping from jail; lynched by posse.
+- **Taylor, James**, 23 — May 19, 1892, Maryland. African American. Accused of rape of 11-year-old Nettie Silcox. Nearly 1,000 gathered at jail; mob used sledgehammer to breach door; hanged from a tree outside city limits.
+- **Addison, Bob**, — May 17, 1892, Georgia. African American. Same case as Redmond.
+- **Roberson, Gus**, — May 17, 1892, Georgia. African American. Same case as Redmond.
+- **Redmond, Jim**, — May 17, 1892, Georgia. African American. Fatal assault of Toccoa City Marshal James Carter. Hanged from a single tree with chains and padlocks.
+- **Grizzard, Ephraim**, 44–45 — April 30, 1892, Tennessee. African American. Same case as Henry Grizzard.
+- **Grizzard, Henry**, — April 27, 1892, Tennessee. African American. Assaulting two white girls in Goodlettsville. Taken out of prison cell and lynched on a bridge in downtown Nashville in front of 10,000 onlookers.
+- **Dye, Joseph**, — March 18, 1892, Virginia. White. Convicted murderer. Seized from police when trying to move him to safer location.
+- **Heflin, Lee**, 29 — March 18, 1892, Virginia. White. Same case as Dye.
+- **Bright, John Wesley**, — March 16, 1892, Missouri. White. Killing his wife. Deputy Sheriff killed by mob who then shot and killed prisoner.
+- **Stewart, Will**, Adult — March 9, 1892, Tennessee. African American. Complaint from competing white grocery store owner. So-called Curve Riot. Reported on by Ida B. Wells.
+- **McDowell, Calvin**, 32 — March 9, 1892, Tennessee. African American. Same case as Thomas Moss.
+- **Moss, Thomas**, 38–39 — March 9, 1892, Tennessee. African American. Same case as above.
+- **Coy, Edward**, — February 20, 1892, Arkansas. African American. Attacked a white woman. Burned.
+- **Corbin, Henry**, — January 14, 1892, Ohio. African American. Death of a white woman. Taken from jail and hanged.
+- **Hinson, Henry**, — January 12, 1892, Florida. African American. Murder. Hanged.
+- **Unknown**, — 1892, Florida. African American. Suspicion of burglary and incendiarism. Hanged.
+- **Lundy, Dick**, Adult — December 1891, South Carolina. African American. Murder of son of sheriff. Coroner's jury: "by persons unknown."
+- **Rush, John**, — October 19, 1891, Louisiana. White. Murder of an elderly black woman. Taken from jail and hanged.
+- **Smith, George** (AKA Joe Coe), 20 — October 10, 1891, Nebraska. African American. Rape of a 5-year-old white girl. Governor and sheriff tried to quiet crowd. Pieces of lynching rope sold as souvenirs. Coroner said he died of "fright."
+- **Ortiz, Louis**, — September 19, 1891, Nevada. Latino. Shooting of Officer Dick Nash. Freed from jail at gunpoint by vigilante crew and hanged from the Virginia Street Bridge.
+- **Ford, Andrew**, — August 24, 1891, Florida. African American. Beating a man, aiding Harmon Murray. Taken from jail by mob and hanged.
+- **Clark, Robert**, — June 13, 1891, Tennessee. African American. Rape.
+- **Taylor, Jim**, — April 30, 1891, Tennessee. African American. Shooting two white men, including a police officer. Taken from jail and hanged on Murfreesboro Road.
+- **Hodges, Lewis**, — March 14, 1891, Mississippi. African American. Attempted rape of a woman. Kidnapped from jail by four men and lynched in public.
+- **11 Italian Americans**, — March 14, 1891, Louisiana. Italian. Killing of police chief. Three had been acquitted; three had a mistrial; five were never tried. Lynching organized by local leaders including future mayor and future governor.
+- **Sanders, Henry**, — March 11, 1891, Tennessee. White. Rape of a 16-year-old white girl. Hanged from a tree.
+- **Kelly, Michael**, — February 17, 1891, Florida. Irish. Murder. Taken from jail by mob and hanged.
+- **Champion, Tony**, — February 17, 1891, Florida. African American. Murder. Taken from jail by mob and hanged.
+- **Salceda, Jesus**, — February 4, 1891, Texas. Latino. Seducing a white man's daughter. Three white men hanged him from an oak tree; later found they had mistaken him for another Mexican.
+- **Hargus, Frank**, — August 12, 1890, Tennessee. White. Rape of a 9-year-old white girl. Hanged from a tree after being found hiding in a cave.
+- **Tacho**, — April 27, 1890, California. Native American. Stealing horses and cattle. Hanged from a telegraph pole.
+- **Williams, William**, — April 3, 1890, Texas. African American. Rape of an eight year old white girl. Taken from jail, hanged, and shot multiple times.
+- **Washington, Brown**, 15 — February 27–28, 1890, Georgia. African American. Murder of a 9-year-old white girl. Hanged from a telegraph pole.
+- **Ladd, Eli**, 20 — February 7, 1890, Indiana. African American. Assault of a white woman, confronting mob. Shot.
+- **Bell, Peter**, about 60 — December 28, 1889, South Carolina. African American. Mob of about 100 took men from jail to outskirts of Barnwell and shot them.
+- **Johnson, Harrison**, about 35 — December 28, 1889, South Carolina. African American. Same mob as above.
+- **Furz, Hugh**, about 24 — December 28, 1889, South Carolina. African American. Same mob.
+- **Phoenix, Robert**, about 30 — December 28, 1889, South Carolina. African American. Same mob.
+- **Jones, Judge**, about 22 — December 28, 1889, South Carolina. African American. Same mob.
+- **Adams, Mitchell**, — December 28, 1889, South Carolina. African American. Same mob.
+- **Johnson, Ripley**, — December 28, 1889, South Carolina. African American. Same mob.
+- **Morral, Ralph**, about 28 — December 28, 1889, South Carolina. African American. Same mob.
 - **Wise, Mrs.**, — 1931, Virginia. African American. Objected to her daughter being taken out for "rides" with white Klansmen.
 
 ## Sources
