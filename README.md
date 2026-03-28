@@ -13,6 +13,7 @@
 - [List of US Atrocities](us_atrocities.md)
 - [List of US hate crimes](us_hate_crimes.md)
 - [Unarmed African Americans killed by police](unarmed_african_americans_killed_by_police.md)
+- [Lynching victims in the United States](lynching_victims_in_the_united_states.md)
 
 ## Essays
 
